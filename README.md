@@ -1,1 +1,1 @@
-Ozonocoin is a virtual currency
+Ozonocoin enabling funds for world wide projects
